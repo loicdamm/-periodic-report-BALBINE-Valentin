@@ -20,6 +20,10 @@ So the next step is to define the scope of the project, define a question to ans
 
 I have to see my employer to discuss about the modality of the internship due to my particular situation.
 
+Feedback
+
+I notice good progress. The company you plan to work with is interested in your project, and you can now indeed refine the problem you want to adress. Well done.
+
 
 
 
